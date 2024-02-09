@@ -1,0 +1,1 @@
+- [Industrial robots](https://youtu.be/QAby_ilhoDQ)
